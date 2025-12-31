@@ -67,4 +67,4 @@ Here are some ideas to get you started:
 
 ---
 
-> "Everything is new, untill you can't do." – Akash Kanar
+> "Everything is new, untill you can't do." – Shibananda Sahoo
